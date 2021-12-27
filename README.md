@@ -8,7 +8,7 @@
 
 ### TT
 
-### 微信 18702964307
+### 微信同电话 18702964307
 
 ![TT](https://github.com/XinnanSui/CallCenter/blob/master/tt.png "天天呼叫中心")
 
